@@ -1,0 +1,1 @@
+# data-nse-index-equity-monthly-2022
